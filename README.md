@@ -1,8 +1,6 @@
 ### Hi there 👋 
 
-
-https://user-images.githubusercontent.com/40242166/234588731-744009f2-0f0f-4a4c-87c4-72f5265d3fa7.mp4
-
+![rjn](https://user-images.githubusercontent.com/40242166/234589168-3ec4b28c-51a9-47ac-b475-e97f10baa175.gif)
 
 
 
